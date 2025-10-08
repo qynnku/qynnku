@@ -1,6 +1,9 @@
-## Hi there 👋
-
-
+## ✨ Hello there! I'm Nhu - Designer & Social Media Lover 💖
+## Hi! I'm Truong Quynh Nhu (born 14/04/2005) from Ho Chi Minh City, Vietnam. 👋
+## I'm currently a Multimedia Technology student, and I treat design as my language. 🎨 I'm a creative mind always looking for innovative ways to help businesses thrive in the digital space!
+## With 1 year of experience as a Social Media Specialist, I managed a student Fanpage with 6,000+ followers. 📈 My go-to skills include Content Planning, designing beautiful Posters/Key Visuals, and event Photography. 📸
+## I'm proficient in Photoshop (Ps), Illustrator (Ai), Premiere (Pr), Lightroom (Lr), Capcut, and Blender. 💻
+## 💌 Feel free to connect with me: truongquynhnhu.mynzh@gmail.com. Let's create something amazing together! 😊
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/qynnku) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/lmr.qnhu) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/qynnku) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@qynnku) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@qynnku) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:truongquynhnhu.mynzh@gmail.com) 
