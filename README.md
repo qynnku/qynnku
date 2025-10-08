@@ -1,5 +1,5 @@
 ## ✨ Hello there! I'm Nhu - Designer & Social Media Lover 💖
-## Hi! I'm Truong Quynh Nhu (born 14/04/2005) from Ho Chi Minh City, Vietnam. 👋 
+
  I'm currently a Multimedia Technology student, and I treat design as my language. 🎨 I'm a creative mind always looking for innovative ways to help businesses thrive in the digital space! <br>
  
  With 1 year of experience as a Social Media Specialist, I managed a student Fanpage with 6,000+ followers. 📈 My go-to skills include Content Planning, designing beautiful Posters/Key Visuals, and event Photography. 📸 <br?
